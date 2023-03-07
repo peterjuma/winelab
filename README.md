@@ -35,3 +35,5 @@ https://www.vinolab.hr/calculator/gravity-density-sugar-conversions-en19
 https://www.slowine.com/how-to-make-wine-less-acidic-with-baking-soda
 
 https://users.soe.ucsc.edu/~karplus/mead-recipe.html
+
+https://www.piwine.com/winemaking-101.html#Filtering_and_Clarifying
