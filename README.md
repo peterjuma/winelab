@@ -37,3 +37,20 @@ https://www.slowine.com/how-to-make-wine-less-acidic-with-baking-soda
 https://users.soe.ucsc.edu/~karplus/mead-recipe.html
 
 https://www.piwine.com/winemaking-101.html#Filtering_and_Clarifying
+
+
+Equipment:
+
+https://sciencelab.co.ke/collections/laboratory-equipment/products/alcohometer
+
+https://sciencelab.co.ke/collections/laboratory-equipment/products/rubber-stopper
+
+https://sciencelab.co.ke/collections/laboratory-equipment/products/wash-bottle
+
+https://sciencelab.co.ke/collections/laboratory-equipment/products/p-v-c-tubing
+
+https://sciencelab.co.ke/collections/laboratory-equipment/products/pipette-filler
+
+https://sciencelab.co.ke/collections/laboratory-equipment/products/siphon-pump
+
+https://shopit.co.ke/cart/
