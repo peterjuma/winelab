@@ -23,3 +23,13 @@ https://www.awri.com.au/industry_support/winemaking_resources/frequently_asked_q
 https://winemakermag.com/wine-wizard/993-egg-white-fining-overoaking-wine-wizard
 
 https://www.allrecipes.com/article/cup-to-gram-conversions/
+
+
+----
+
+
+https://moonshiners.club/homemade-mango-wine/
+
+https://www.vinolab.hr/calculator/gravity-density-sugar-conversions-en19
+
+https://www.slowine.com/how-to-make-wine-less-acidic-with-baking-soda
