@@ -53,4 +53,12 @@ https://sciencelab.co.ke/collections/laboratory-equipment/products/pipette-fille
 
 https://sciencelab.co.ke/collections/laboratory-equipment/products/siphon-pump
 
+https://sciencelab.co.ke/collections/laboratory-equipment/products/muslin-cloth
+
 https://shopit.co.ke/cart/
+
+
+https://sciencelab.co.ke/collections/laboratory-equipment/products/thermometer
+https://sciencelab.co.ke/collections/laboratory-equipment/products/bottle-traps
+
+https://docs.google.com/document/d/1QXLncuxpiFFW1ZeFMS48-rVNcvOpXmczGG20iKGl10g/edit
