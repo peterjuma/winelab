@@ -24,6 +24,8 @@ https://winemakermag.com/wine-wizard/993-egg-white-fining-overoaking-wine-wizard
 
 https://www.allrecipes.com/article/cup-to-gram-conversions/
 
+https://www.youtube.com/watch?v=yFub2Bc91Uo&t=30s
+
 
 ----
 
