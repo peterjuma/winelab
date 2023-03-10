@@ -26,6 +26,9 @@ https://www.allrecipes.com/article/cup-to-gram-conversions/
 
 https://www.youtube.com/watch?v=yFub2Bc91Uo&t=30s
 
+https://homebrewadvice.com/how-to-use-egg-shells-to-clear-wine
+
+https://www.exploratorium.edu/cooking/eggs/eggcomposition.html
 
 ----
 
